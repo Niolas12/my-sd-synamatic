@@ -1,1 +1,0 @@
-# my-sd-synamatic
